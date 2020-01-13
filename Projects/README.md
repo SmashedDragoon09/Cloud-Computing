@@ -1,0 +1,1 @@
+These are all of the projects for this semester
